@@ -139,4 +139,12 @@ Key points:
 4. Some health risks are actually HIGHER for tall people
 5. Recovery can be more complicated due to larger systems
 
+
+### Reality Interviews
+<https://www.youtube.com/shorts/4VQL9e6saCg>
+
+and
+
+<https://www.youtube.com/watch?v=J1ejAucYL0w&t=187s>
+
 The bottom line: Height provides zero protection against substance damage. Everyone, regardless of height, should be equally concerned about these health risks.
